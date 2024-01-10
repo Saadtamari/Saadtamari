@@ -14,7 +14,7 @@ I thrive on leadership and entrepreneurship. I've actively participated in leade
 
 My Accounts:
 
-linkedin.com/in/saad-altamari
+https://www.linkedin.com/in/saad-altamari
 
 https://instagram.com/saad_altamari03
 
