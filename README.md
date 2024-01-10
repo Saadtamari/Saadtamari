@@ -12,9 +12,12 @@ I lead with confidence, having led teams in various locations. My teamwork skill
 
 I thrive on leadership and entrepreneurship. I've actively participated in leadership and innovation competitions, achieving significant success at the national level in Jordan. I'm confident that one day, I'll emerge as one of the world's leading✨️🚀 entrepreneurs. 
 
-My Accounts
+My Accounts:
+
 linkedin.com/in/saad-altamari
+
 https://instagram.com/saad_altamari03
+
 https://www.facebook.com/saad.altamari.9
 
 <!---
