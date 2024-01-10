@@ -11,7 +11,12 @@ I'm a driven individual, always aiming for progress and development. I'm deeply 
 I lead with confidence, having led teams in various locations. My teamwork skills are commendable, honed through numerous volunteering experiences. Volunteering is my way of contributing positively to society. 🌱🤝
 
 I thrive on leadership and entrepreneurship. I've actively participated in leadership and innovation competitions, achieving significant success at the national level in Jordan. I'm confident that one day, I'll emerge as one of the world's leading✨️🚀 entrepreneurs. 
+
+My Accounts
+linkedin.com/in/saad-altamari
+https://instagram.com/saad_altamari03
 https://www.facebook.com/saad.altamari.9
+
 <!---
 Saadtamari/Saadtamari is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
